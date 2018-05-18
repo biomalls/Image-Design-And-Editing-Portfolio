@@ -1,1 +1,1 @@
-# Image-Design-Editing-Portfolio
+# Image-Design-And-Editing-Portfolio
